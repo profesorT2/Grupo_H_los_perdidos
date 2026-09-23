@@ -1,0 +1,1 @@
+notas importantes del repositorio
